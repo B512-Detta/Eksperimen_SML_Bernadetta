@@ -1,1 +1,1 @@
-# Eksperimen_SML_Bernadetta-siswa
+# Eksperimen_SML_Bernadetta
